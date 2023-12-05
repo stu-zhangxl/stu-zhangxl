@@ -8,7 +8,7 @@
 - 🍱 我的知乎（Zhihu） [统计小白er](https://www.zhihu.com/people/zhang-xin-long-87)
 - 📜 我的微信公众号（统计小白er）
 
-- 期待相互关注~ 
+期待相互关注~ 
 
 
 
