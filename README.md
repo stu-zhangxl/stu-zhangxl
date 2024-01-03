@@ -6,7 +6,11 @@
 - 🍬 期待能够创建自己独特的价值, 能够完成自己的小目标~ 
 - 📚 我的CSDN博客（CSDN Blog） [paul_work](https://blog.csdn.net/qq_40249337?type=blog)
 - 🍱 我的知乎（Zhihu） [统计小白er](https://www.zhihu.com/people/zhang-xin-long-87)
+- 🍱 我的简书（简书） [统计小白er](https://www.jianshu.com/u/63dcfc225fa5)
+- 🍱 我的头条号（今日头条） [统计小白er](https://www.toutiao.com/c/user/token/MS4wLjABAAAAhuuNXz1EVfy_IfsATDSQbBJdB5bf-L97i73qKlgVDrY/?)
 - 📜 我的微信公众号（统计小白er）
+
+
 
 期待相互关注~ 
 
